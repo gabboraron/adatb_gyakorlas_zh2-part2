@@ -1,0 +1,1 @@
+# adatb_gyakorlas_zh2-part2
